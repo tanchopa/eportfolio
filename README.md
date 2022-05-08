@@ -1,1 +1,2 @@
-# eportfolio
+Sean has two graduate degrees from the University of Arkansas in Operations Management and Engineering. He has a decade of instructing experience. Correspondence systems are techniques utilized for trading data that can be visual, verbal, or nonverbal. Investigate the definition and kinds of correspondence methodologies, and instances of each sort. (no evidence provided)
+Peace making is utilized to deal with clashes with reasonableness and effectiveness. In doing as such, you can stay away from unfortunate correspondence between associates, decline working environment pressure to further develop efficiency, and furthermore keep the confidence of representatives high.(no evidence provided)
